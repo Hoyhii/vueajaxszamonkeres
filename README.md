@@ -1,4 +1,4 @@
-# [Név]
+# [Zsálek Norbert]
 
 ## Hogyan kezdj neki?
 
